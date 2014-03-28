@@ -1,1 +1,1 @@
-2048 DigiComp, feito somente para bullying, não comercializar;
+2048 DigiComp, feito somente para diversão, não comercializar;
